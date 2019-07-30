@@ -1,2 +1,3 @@
 # WORDS-OF-WISDOM.......
 The True Measure of a person is how they treat someone who will do them ABSOLUTELY no good.
+I ponder @ this......... Those whose life solely depend on their loved ones especially those who TRUTHFULLY say ," they can't BREATH without their loved one, ie their HEARTBEAT OR SOULMATE", I sincerely hope their family members are CONSCIOUSLY AWARE that their relation is on LIFE SUPPORT.
